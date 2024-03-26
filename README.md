@@ -1,0 +1,3 @@
+fatima iqbal
+F21BDOCS1E02115
+BSCS 6TH E A
